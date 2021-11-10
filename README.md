@@ -1,0 +1,1 @@
+# LR-minor-thesis-project
